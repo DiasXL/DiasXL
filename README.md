@@ -10,7 +10,6 @@ Meu nome é João Victor
 
 00001080784925sp@al.educacao.sp.gov.br
 
-facebook joao victor
 
 ![](
 https://media1.tenor.com/m/_F5AX4UOX4AAAAAC/dragon-toothless.gif)
